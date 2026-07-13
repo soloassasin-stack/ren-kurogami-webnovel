@@ -1,92 +1,129 @@
-# ren-kurogami-webnovel
+# Chapter 1 – The Weakest Hunter
 
-PART ONE
+The world had changed the day mysterious Gates first appeared.
 
-THE FALL OF AN E-RANK ASSASSIN
+Some led to harmless dungeons that beginner hunters could clear with ease. Others hid nightmares capable of wiping out entire cities. Every Gate was ranked by danger, and every hunter was ranked by strength.
 
-The rain fell relentlessly over the city, washing the streets beneath a sky consumed by dark clouds.
+Ren Kurogami belonged to the very bottom.
 
-Emergency sirens echoed through the night.
+At nineteen years old, he carried the humiliating title of E-Rank Hunter. His mana reserves were barely above the minimum required to awaken, and his combat skills alone were never enough to earn anyone's respect. To most people, he was nothing more than dead weight—a hunter who should have retired long ago.
 
-Another Gate had appeared.
+"Why is he even here?"
 
-For some, Gates were opportunities—places where wealth, fame, and glory could be earned.
+"I heard he almost died during the last raid."
 
-For others...
+"An E-Rank... What a joke."
 
-They were the entrance to hell.
+The whispers followed Ren wherever he went.
 
-Standing before the massive black Gate was a nineteen-year-old Hunter wearing a dark combat jacket. Two short daggers rested quietly at his waist, their blades reflecting the crimson warning lights.
+He never argued.
 
-His name was Ren Kurogami.
+He simply tightened the straps around his twin daggers and continued walking.
 
-Hunter Rank: E
-Class: Assassin
+If there was one thing Ren refused to lose, it was his determination.
 
-He wasn't gifted with overwhelming strength.
+Even if the entire world looked down on him...
 
-He couldn't wield devastating magic.
+He would continue fighting.
 
-He wasn't born with extraordinary talent.
+That morning, dozens of hunters gathered outside a newly discovered dungeon. According to the Hunter Association, it was classified as a standard low-risk Gate, suitable for lower-ranked hunters.
 
-To the Hunter Association...
+Nothing unusual.
 
-He was just another low-ranking Hunter struggling to survive.
+Nothing dangerous.
 
-"An E-Rank Assassin?"
+Just another mission.
 
-One Hunter let out a mocking laugh.
+Ren signed the attendance sheet and joined the expedition.
 
-"Why is someone like him even here?"
+The dungeon entrance shimmered like liquid glass. One by one, the hunters stepped inside until only silence remained outside.
 
-Another crossed his arms and smirked.
+The air changed instantly.
 
-"Stay behind us. If you die, don't expect anyone to save you."
+Cold.
 
-Ren remained silent.
+Heavy.
 
-He had grown used to those words.
+Unnatural.
 
-Weak.
+Ancient stone corridors stretched endlessly beneath flickering blue crystals embedded in the walls. Strange symbols glowed faintly across the floor, though no one recognized their meaning.
 
-Worthless.
+"So this is today's dungeon?" one hunter laughed.
 
-Disposable.
+"Easy money."
 
-That was the only image the world had of him.
+The team moved deeper.
 
-Yet despite countless insults...
+Monsters appeared in small groups and were quickly defeated. Everything seemed exactly as the report had predicted.
 
-Despite risking his life in every raid...
+Until...
 
-Despite returning home covered in wounds after every mission...
+The ground trembled.
 
-He never stopped walking forward.
+A deafening roar echoed throughout the dungeon.
 
-Not because he dreamed of becoming a legendary Hunter.
+The blue crystals suddenly shattered.
 
-Not because he wanted fame or recognition.
+Darkness swallowed every corridor.
 
-But because surviving was the only choice he had.
+"What... was that?"
 
-"Everyone, pay attention!"
+Before anyone could react, the dungeon entrance behind them twisted violently.
 
-The raid captain, an experienced A-Rank Hunter, stepped forward.
+The glowing exit collapsed into complete darkness.
 
-"This Gate has been officially classified as a B-Rank Dungeon. According to the Association's latest report, we should only encounter mid-level monsters. Stay in formation, follow my orders, and we'll clear this dungeon before sunset."
+"No..."
 
-The team answered confidently.
+"It closed!"
 
-No one doubted the report.
+Hunters rushed toward the entrance, desperately striking the black barrier that had replaced it.
 
-No one noticed the unnatural silence waiting beyond the Gate.
+Nothing happened.
 
-And no one realized...
+No one could leave.
 
-That the information they had trusted with their lives...
+At that exact moment, crimson warning symbols ignited across the walls.
 
-Was completely wrong.
+An ancient voice echoed through the entire dungeon.
 
-As Ren Kurogami took his first step into the darkness...
+"Gate Evolution Detected."
 
-He unknowingly walked toward the moment that would change his destiny forever.
+"Dungeon Classification Updated."
+
+The hunters froze.
+
+A second message appeared above them in burning black letters.
+
+BLACK GATE
+
+Threat Level: S-Rank
+
+Silence.
+
+Absolute silence.
+
+Faces turned pale.
+
+Some hunters dropped their weapons.
+
+Others fell to their knees.
+
+An ordinary dungeon...
+
+Had transformed into a Black Gate.
+
+No rescue team could enter.
+
+No communication could escape.
+
+No one had ever returned alive from a Black Gate.
+
+Ren slowly gripped the handles of his daggers.
+
+For the first time since becoming a hunter...
+
+He felt death standing right beside him.
+
+And somewhere deep within the endless darkness...
+
+Something had already awakened.
